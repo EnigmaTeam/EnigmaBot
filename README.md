@@ -3,7 +3,7 @@
 
 اوپن شده و نوشته شده توسط 
 
-[enigma](https://telegram.me/A9369720)
+[enigma](https://telegram.me/)
 
 قدرت گرفته از 
 
